@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @bunnig0th
+- 👀 I’m interested in Anime & Civ 6
+- 📫 How to reach me Discod: bunnigoth#2795
